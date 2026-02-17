@@ -24,7 +24,7 @@ Please do not contact me through my Roblox account.
 </div>
 
 
-# Contribution Achievments: 
+# Contribution Achievements: 
 * [Steam Award of Community Contributor - Legacy](https://steamcommunity.com/id/globalzf1fc25/) (Garry's Mod) (Record of having 5k+ downloads) 
 * Ex-Developer and Contributor of [Liwa Blox](https://www.roblox.com/games/16315346399/Liwa-Blox) **10M+ Visits, CCU 100+** 
 * Respected Helper in Roblox Devforum & HiddenDevs || Former respected helper for RoDevs
