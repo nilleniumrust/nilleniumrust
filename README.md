@@ -2,7 +2,7 @@
 ## ABOUT ME 
 
 <center> 
-<img src="https://i.imgflip.com/2frtga.jpg" alt="HyperLink" width="350" height="400">
+<img src="https://peakvisor.com/photo/SD/almaty-mountains-lake.jpg" alt="HyperLink" width="2560" height="580">
 </center>
 
 ### Heya, my name's NilleniumRust (or Kasym) in real-life terms. 
