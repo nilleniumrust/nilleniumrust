@@ -30,6 +30,6 @@ Please do not contact me through my Roblox account.
 * Respected Helper in Roblox Devforum & HiddenDevs || Former respected helper for RoDevs
 
 # Contacts 
-<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/7/7e/Gmail_icon_%282020%29.svg/1280px-Gmail_icon_%282020%29.svg.png" alt="Email" width="25" height="25">  kasymzhomarttv@gmail.com\
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/7/7e/Gmail_icon_%282020%29.svg/1280px-Gmail_icon_%282020%29.svg.png" alt="Email" width="25" height="25">  nilleniumrust@gmail.com\
 <img src="https://upload.wikimedia.org/wikipedia/fr/4/4f/Discord_Logo_sans_texte.svg" alt="Email" width="25" height="25"> vazz111
 
